@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @codav109
+- 👀 I’m interested in project ideas email me @nicholaskiplimo5@gmail.com
+- 🌱 I’m currently freelancer developer.
